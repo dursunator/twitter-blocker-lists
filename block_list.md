@@ -1,5 +1,5 @@
-## Kategori1
-- @sowuskral | 01.01.2024 | Test  Açıklama!
+## Yalan Haber Paylaşanlar
+- @bptoyun | 06.01.2025 | Etkileşim için yalan haber paylaşıyor.
 - @username2 | 02.01.2024 | Açıklama2
 
 ## Kategori2
