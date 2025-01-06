@@ -1,6 +1,7 @@
-## 🤖 test kategori
-- @sowuskral | 2024-01-25 | sowen kral?
-- @furkancerkes | 2024-01-25 | furkan bölükbaşı, daha fazla açıklamaya gerek var mı?
-- @BestClipOnX | 2024-01-25 | Malmal
-## 🙏 Deneme Kategori
-- @bpthaber | 2027-01-25 | DENEME
+## Kategori1
+- @sowuskral | 01.01.2024 | Test  Açıklama!
+- @username2 | 02.01.2024 | Açıklama2
+
+## Kategori2
+- @username3 | 03.01.2024 | Açıklama3
+- @username4 | 04.01.2024 | Açıklama4
