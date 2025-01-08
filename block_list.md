@@ -1,3 +1,5 @@
+## 🐒 Şebek Anonim Hesaplar
+- @L0rd1881 | 09.01.2025 | Komik bir şaklaban.
 ## 🤗 BPT'ye dair her şey
 - @bptoyun | 06.01.2025 | BPT :)
 - @bptfinans | 06.01.2025 | BPT :)
@@ -7,6 +9,3 @@
 - @podcastbpt | 06.01.2025 | BPT :)
 - @sinebpt | 06.01.2025 | BPT :)
 - @bpttarih | 06.01.2025 | BPT :)
-
-## 🐒 Şebek Anonim Hesaplar
-- @L0rd1881 | 09.01.2025 | Komik bir şaklaban.
