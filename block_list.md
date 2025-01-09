@@ -1,3 +1,6 @@
+## 🫏 Metin Girin
+- @DemNews1 | 09.01.2025 | Kürt haber. | (kürdo)
+
 ## 🐒 Şebek Anonim Hesaplar
 - @L0rd1881 | 09.01.2025 | Komik bir şaklaban. | (Şaklaban)
 
