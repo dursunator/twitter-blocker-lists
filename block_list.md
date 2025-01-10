@@ -2,7 +2,7 @@
 - @DemNews1 | 09.01.2025 | Kürt haber sayfası. | (kürdistancı)
 
 ## 🐒 Şebek Anonim Hesaplar
-- @L0rd1881 | 09.01.2025 | Komik bir şaklaban. | (🤡Şaklaban)
+- @L0rd1881 | 09.01.2025 | Komik bir şaklaban. | (🤡-Şaklaban)
 
 ## 🤗 BPT'ye dair her şey
 - @bptoyun | 06.01.2025 | BPT :)
