@@ -9,7 +9,7 @@
 - @habermujdeli | 11.01.2025 | Tuhaf biri çözemedim. | (💡 - Aktrol)
 - @sabriamcaparodi | 11.01.2025 | Aktrol. | (💡 - Aktrol)
 - @devletialiyye25 | 11.01.2025 | Aktrol. | (💡 - Aktrol)
-- @06melihgokcek | 11.01.2025 | Dümdüz Melih Gökçek, ne yazabilirm ki?
+- @06melihgokcek | 11.01.2025 | Dümdüz Melih Gökçek, ne yazabilirim ki?
 
 ## 🤗 BPT'ye dair her şey
 - @bptoyun | 06.01.2025 | BPT :)
