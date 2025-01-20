@@ -10,6 +10,7 @@
 - @sabriamcaparodi | 11.01.2025 | Aktrol. | (💡 - Aktrol)
 - @devletialiyye25 | 11.01.2025 | Aktrol. | (💡 - Aktrol)
 - @06melihgokcek | 11.01.2025 | Dümdüz Melih Gökçek, ne yazabilirim ki?
+- @yazar_ulkucu | 21.01.2025 | Troll haber sayfası | Troll
 
 ## 🤗 BPT'ye dair her şey
 - @bptoyun | 06.01.2025 | BPT :)
