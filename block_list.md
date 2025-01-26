@@ -1,5 +1,6 @@
 ## 🫏 Kürdistan'cılar
 - @DemNews1 | 09.01.2025 | Kürt haber sayfası. | (kürdistancı)
+- @tinaplse | 26.01.2025 | Kürdistancı. | (kürdistancı)
 
 ## 🥸 Troll/Manipülatif Hesaplar
 - @devlet_024 | 11.01.2025 | Aktrol. | (💡 - Aktrol)
