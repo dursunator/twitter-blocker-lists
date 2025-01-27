@@ -10,6 +10,9 @@
 - @06melihgokcek | 11.01.2025 | Dümdüz Melih Gökçek, ne yazabilirim ki?
 - @yazar_ulkucu | 21.01.2025 | Troll haber sayfası | Troll
 
+## 😓 Yabancılardan Post Çalan Hesaplar
+- @anlikmod | 27.01.2025 |
+
 ## 🤗 BPT'ye dair her şey
 - @bptoyun | 06.01.2025 | BPT :)
 - @bptfinans | 06.01.2025 | BPT :)
